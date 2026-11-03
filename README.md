@@ -1,9 +1,10 @@
 - hi, I’m @King-Ducke
-- i’m interested in history, flags, ducks, and video games (mostly Roblox)!
+- i’m interested in history, geography, flags, ducks, and video games!
 - pronouns: He/Him
-- fun fact: i know every single modern-day country flag in the world
+- fun fact: i know every single modern-day country and territory flag in the world
+  - i also know some historical flags and state flags and such
 
-get rickrolled lollollollolllollollolol
+get rickrolled lol
 
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢿⡿⣿⣿⣿⣿⣿⣿⡿⣻⣻⣻⣻⣻⣻⡽⣯⣟⢷⠍⠟⠉⠛⢿⢿⣻⣻⢿⣿⣿⣯⣻⡽⣯⣻⣻⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣻⢯
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣻⣻⣻⣻⡟⡅⠀⠀⠀⠠⠀⠀⠆⡹⣻⣻⡽⣯⣻⡽⣯⣻⡽⣻⣻⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣻⣻⣻
